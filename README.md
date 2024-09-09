@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Patrick12324
 - 👀 I’m interested in volleyball
 - 🌱 I’m currently learning Digital Technology
-- 💞️ I’m looking to collaborate on my rtasks with others
+- 💞️ I’m looking to collaborate on my tasks with others
 - 📫 How to reach me ...
 - 😄 Pronouns: him
 - ⚡ Fun fact: ...
